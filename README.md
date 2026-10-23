@@ -10,3 +10,4 @@ Seneng sih walau jenuh dikit
 
 ## Kesan Pesan Cluster 8 Sejauh Ini 
 Very fun, i can know each other seneng rasanya bisa kenal kalian semua  
+ 
