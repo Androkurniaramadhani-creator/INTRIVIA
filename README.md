@@ -11,3 +11,5 @@ Seneng sih walau jenuh dikit
 ## Kesan Pesan Cluster 8 Sejauh Ini 
 Very fun, i can know each other seneng rasanya bisa kenal kalian semua  
  
+ ## Harapan Kuliah 
+Mengasah hard skills sesuai jurusan serta soft skills seperti public speaking, komunikasi, dan pemecahan masalah
